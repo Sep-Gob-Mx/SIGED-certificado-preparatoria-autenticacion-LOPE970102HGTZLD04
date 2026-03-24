@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOPE970102HGTZLD04
+LOPE970102HGTZLD04
